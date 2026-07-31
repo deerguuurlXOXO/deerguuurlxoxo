@@ -40,5 +40,5 @@ My keyboard is also very broken, if we aren't close, making jokes about my spell
  
 ![Alt text](https://spotify-recently-played-readme.vercel.app/api?user=31ubmixocgd5qu7wk5carecoq4t4&unique={true|1|on|yes})
 
-[discord server](https://discord.gg/py37fxQpr8)
+[discord server]()
 </div>
