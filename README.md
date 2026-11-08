@@ -37,12 +37,3 @@ I really love Rewrite Sonic, he is just so cute AUUUUUHH. I don't really talk ab
 My keyboard is also very broken, if we aren't close, making jokes about my spelling mistakes will PMO. LEFTE/Lefty from FNAF PMO. I also really hate Jax.
 
 </p>
-
-<br>
-
-<div align=center>
- 
-![Alt text](https://spotify-recently-played-readme.vercel.app/api?user=31ubmixocgd5qu7wk5carecoq4t4&unique={true|1|on|yes})
-
-[discord server]()
-</div>
