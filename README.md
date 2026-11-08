@@ -3,7 +3,7 @@ HIII I'm CHARLOTTE. I also go by Charlie, Lotte and Lottie. Other acceptable nam
 
 the spectrum
 
-social anxiety ←---------------------→ DONT GAF
+social anxiety ←---------------------------→ DONT GAF
 
 <br>
 
