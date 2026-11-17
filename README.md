@@ -1,6 +1,7 @@
 <img align="left" height="320" width="240" src="https://i.postimg.cc/q7xKKPCV/images-16-removebg-preview.png)](https://postimg.cc/gwrrFBDN)">
 HIII I'm CHARLOTTE. I also go by Charlie, Lotte and Lottie. Other acceptable names are Cam or Camera and any characters I kin, particularly Rosy(malware amy), Amy Rose and Ribbit. I naturally feel very unwelcome, it's why I'm so awkward around new people. My phome is also extremely crappy and cheap so I disconnect a lot lmaoooo. If we don't talk often, that's too bad, you have to ask me to hangout with you for various different reasons depending on my current emotional state.
 
+
 <br>
 
 <p align="center">
